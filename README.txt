@@ -1,1 +1,1 @@
-all the stuff i don't yet understant
+everything should be in qmeebc
